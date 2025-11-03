@@ -100,7 +100,7 @@ Continued use of the App following the posting of revised Privacy Policy means t
 
 If you have questions or concerns about this Privacy Policy or our privacy practices, please contact:
 
-**Email:** privacy@ninestarki.app
+**Email:** info@atlanticground.com
 
 We will respond to privacy inquiries within 30 days.
 
